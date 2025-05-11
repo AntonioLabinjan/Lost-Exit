@@ -1,1 +1,1 @@
-"# Lost-Exit" 
+Nič od tega...šibat ćemo samo po UVC-u
