@@ -1,1 +1,1 @@
-Nič od tega...šibat ćemo samo po UVC-u
+TODO: hodnici, mirror room, atelje, 404
